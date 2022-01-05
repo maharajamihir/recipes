@@ -15,5 +15,5 @@
 * If the beans are cooked then remove lid and check if the most of the water is absorbed. 
 * If yes then add two big spoons peanut powder and mix well. 
 * Add another half small spoon of salt only as per taste..do not make salty. 
-* Keep adding salt pinch by pinch and check the taste.
+* Keep adding salt pinch by pinch and check the taste.\
 _It is now ready to eat._

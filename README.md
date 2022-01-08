@@ -1,3 +1,3 @@
 # recipies
 
-[Rajma Chaval](rajma_chaval.md)
+[Rajma Chaval](rajma_rice.md)

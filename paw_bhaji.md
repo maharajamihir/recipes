@@ -6,7 +6,7 @@ butter gemuse 1 packet. One big onion, 5 petals garlic. 2 mix Paprika , tomato p
 1.Cook potatoes seperate in pressure cooker. 
 
 2.cut paprika in to small pieces. And butter Gemuse mix both and cook in the pressure cooker.
-<br>
+\\
 Keep it aside for cooling. 
 
 3. Cut garlic and Onion into small pieces. Take one big spoon oil in the pan add turmeric two pinch in it saute it. Once it is warm add finly chopped onian and garlic init saute well. Add one pinch salt .once it is golden brown add 3 to 4 big spoons of tomato puree in it. Saute well. Once this mix is well cooked add a big spoon pavbhaji masala in it. Saute well. Cook with masala for 2 mins. Keep it aside.

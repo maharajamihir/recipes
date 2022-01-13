@@ -1,7 +1,7 @@
 # recipies
 
 - [Rajma Chaval](rajma_rice.md)
-- [Black beans bhaji](black_beans_bhaji.md)
+- [Beans](black_beans_bhaji.md)
 
 ## paneer
 - [Chilli Paneer](paneer/Chilli_paneer.pdf)

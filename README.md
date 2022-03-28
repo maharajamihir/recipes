@@ -1,4 +1,4 @@
-# recipies
+# recipes
 
 - [Rajma Chaval](rajma_rice.md)
 - [Beans](black_beans_bhaji.md)
